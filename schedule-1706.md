@@ -4,7 +4,7 @@
 
 - Adam Mescher:
 - Alex Banister:
-- Lola Brenner:
+- Lola Brenner: The Tole of Tech and the Internet in the Advancement of LBGT Rights
 - Amy Holt:
 - Ben Porter:
 - David Ryan:

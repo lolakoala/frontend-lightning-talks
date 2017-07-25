@@ -4,7 +4,7 @@
 
 - Adam Mescher:
 - Alex Banister:
-- Lola Brenner:
+- Lola Brenner: The Role of the Internet in LGBT Rights
 - Amy Holt:
 - Ben Porter:
 - David Ryan:
